@@ -1,1 +1,1 @@
-# melbet-affiliate
+<a href="https://melbetaffiliates.co/">Melbet Affiliates</a> program welcomes India, Bangladesh, Sri Lanka affiliate marketers. Join as a <a href="https://melbetaffiliates.co/">Melbet Affiliate</a> and get attractive incentives of up to 40% commission.
